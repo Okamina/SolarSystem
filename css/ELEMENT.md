@@ -1,0 +1,9 @@
+Sun: http://imgur.com/PddToqG.png
+Marcury: http://imgur.com/LzUEahj.png
+Venus: http://i.imgur.com/YCsvb5j.png
+earth: http://imgur.com/rvfNBuF.
+moon: http://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/FullMoon2010.jpg/280px-FullMoon2010.jpg
+mars: http://imgur.com/guKff1T.png
+jupiter: http://imgur.com/IEggT6f.png
+saturn: http://i.imgur.com/WwWx9MY.png
+neptun: http://imgur.com/vQj8SzM.png
